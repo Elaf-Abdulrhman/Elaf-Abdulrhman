@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Elaf-Abdulrhman
 - I’m a full stack developer
-- I’m looking for an obbortunity to showcase my skills and develop them more 
+- I’m looking for an opportunity to showcase my skills and develop them more 
 - Email: elafabdualrhman00@gmail.com
 - linkedin: https://www.linkedin.com/in/elaf-alshanqiti
